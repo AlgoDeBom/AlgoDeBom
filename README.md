@@ -8,4 +8,4 @@ I actually have another plans for my life rather than programming, but I thought
 
 -----------------------------------------------------------------
 
-![furry-boy-kisser](https://github.com/user-attachments/assets/a0134a54-06d0-4986-a2d8-ffdbc8111d7f) ![furry-boy-kisser](https://github.com/user-attachments/assets/a0134a54-06d0-4986-a2d8-ffdbc8111d7f) ![furry-boy-kisser](https://github.com/user-attachments/assets/a0134a54-06d0-4986-a2d8-ffdbc8111d7f) ![furry-boy-kisser](https://github.com/user-attachments/assets/a0134a54-06d0-4986-a2d8-ffdbc8111d7f) ![furry-boy-kisser](https://github.com/user-attachments/assets/a0134a54-06d0-4986-a2d8-ffdbc8111d7f)
+![furry-boy-kisser](https://github.com/user-attachments/assets/a0134a54-06d0-4986-a2d8-ffdbc8111d7f) ![furry-boy-kisser](https://github.com/user-attachments/assets/a0134a54-06d0-4986-a2d8-ffdbc8111d7f) ![furry-boy-kisser](https://github.com/user-attachments/assets/a0134a54-06d0-4986-a2d8-ffdbc8111d7f) ![furry-boy-kisser](https://github.com/user-attachments/assets/a0134a54-06d0-4986-a2d8-ffdbc8111d7f)
