@@ -8,4 +8,5 @@ I actually have another plans for my life rather than programming, but I thought
 
 -----------------------------------------------------------------
 
-<img width="480" height="270" alt="image" src="https://github.com/user-attachments/assets/ce7ff044-7d86-4e5f-8be0-42741d227c84" />
+<img width="200" height="183" alt="gif" src="https://github.com/user-attachments/assets/b6bf20e3-bb60-437c-8516-53f89f22bf52" />
+
