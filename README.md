@@ -8,4 +8,4 @@ I actually have another plans for my life rather than programming, but I thought
 
 -----------------------------------------------------------------
 
-![https://www.google.com/url?sa=i&url=https%3A%2F%2Fmakeagif.com%2Fgif%2Fboykisser-dance-wFwDKk&psig=AOvVaw00ZQZFmrjzrAIHc7hsS-Uw&ust=1762297991713000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCOjqlcqZ15ADFQAAAAAdAAAAABAE]
+  ![<img width="480" height="270" alt="image" src="https://github.com/user-attachments/assets/ce7ff044-7d86-4e5f-8be0-42741d227c84" />]
