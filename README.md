@@ -8,5 +8,4 @@ I actually have another plans for my life rather than programming, but I thought
 
 -----------------------------------------------------------------
 
-<img width="200" height="183" alt="image" src="https://github.com/user-attachments/assets/b6bf20e3-bb60-437c-8516-53f89f22bf52" />
-
+/>![furry-boy-kisser](https://github.com/user-attachments/assets/a0134a54-06d0-4986-a2d8-ffdbc8111d7f)
